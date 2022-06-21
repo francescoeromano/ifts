@@ -3,6 +3,3 @@
 
 ![trasferimento](https://user-images.githubusercontent.com/107934353/174818453-012e953a-8fd7-4ccf-8308-1543ce4f22b4.jpg)
 
-
-https://user-images.githubusercontent.com/107934353/174825148-1e82c2de-9b18-470b-b442-c14c6f9283ec.mp4
-
